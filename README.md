@@ -1,3 +1,0 @@
-# Multipluk
-
-RETO PLATZI FROME ZERO TO ONE
